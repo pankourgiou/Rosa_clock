@@ -1,0 +1,1 @@
+a simple clock for the good moments with Rosa..I hope she is ok! copy-paste the code on your notepad and save it as .html then double click the file and voila!you have a full working clock straight ffrom Rosa's office. There were some good moments there but seriously I don't understand her. Seriously I don't.
